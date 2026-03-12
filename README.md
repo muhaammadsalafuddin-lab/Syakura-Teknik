@@ -1,1 +1,0 @@
-# Syakura-Teknik
